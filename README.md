@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Brightpan
+- 👀 I’m interested in running and coding.
+- 🌱 I’m currently learning web3.
+- 📫 You can reach me on twitter, brightpan2018.
